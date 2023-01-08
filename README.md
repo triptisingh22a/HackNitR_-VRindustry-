@@ -2,3 +2,4 @@
 VR BASED ELECTRONIC CAR MANUFACTURING INDUSTRY
 https://drive.google.com/file/d/13I6qNSFhHN3VbyPeSJ2KVBYY1k99xEB6/view?usp=sharing
 DRIVE LINK FOR THE VIDEO FILE
+PRESENTATAION DRIVE LINK https://drive.google.com/file/d/1TRx8v90Nllp-z7_qmyumuKmFalnVe6dJ/view?usp=sharing
